@@ -1,1 +1,0 @@
-# nexevo_translation
